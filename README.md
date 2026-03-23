@@ -66,7 +66,4 @@ Check out the full **YouTube Course**:
 
 ---
 
-## 💬 Feedback and Suggestions:
 
-For any feedback or suggestions, feel free to contact me via email:  
-📧 [rajpurohitharsh2020@gmail.com](mailto:rajpurohitharsh2020@gmail.com)
